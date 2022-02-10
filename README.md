@@ -1,0 +1,1 @@
+# liberado-ou-recusado
